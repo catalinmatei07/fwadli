@@ -1,0 +1,2 @@
+# fwadli
+lucrare individuala
